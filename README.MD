@@ -1,1 +1,1 @@
-<img src="https://tenor.com/view/rabbit-spank-spoon-panna-cotta-gif-4746419862868873801"/>
+<img src="https://media1.tenor.com/m/Qd6rt7koUkkAAAAd/rabbit-spank.gif"/>
