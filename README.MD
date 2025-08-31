@@ -1,1 +1,1 @@
-<img src="https://media.discordapp.net/attachments/956216570848370720/972725698059964476/caption-6-1.gif"/>
+<img src="https://tenor.com/view/rabbit-spank-spoon-panna-cotta-gif-4746419862868873801"/>
